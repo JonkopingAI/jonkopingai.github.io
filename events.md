@@ -1,4 +1,4 @@
-# JTH Department of Computing
+# Upcoming Events
 
 ## September
 
